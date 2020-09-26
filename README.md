@@ -37,7 +37,8 @@
 
 ##### See Training 
 
-- 🔞 See Training 🎥  https://youtu.be/YKAoNA29Pws  🎥
+- 🔞 See Training  Old version tutorial 🎥  https://youtu.be/YKAoNA29Pws  🎥
+- 🔞 See Training  new version tutorial 🎥  https://youtu.be/0hl_dUKfu5M  🎥
 
 ----------------------
 
